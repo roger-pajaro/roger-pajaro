@@ -8,5 +8,5 @@
 - 💬 Ask me about my favorities programing lenguage.
 - 📫 How to reach me:rogerpajaro.
 - 😄 Pronouns: He
-- ⚡ Fun fact: ...I paid for WinRaR.
+- ⚡ Fun fact: I paid for WinRaR.
 
